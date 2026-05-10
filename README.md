@@ -1,4 +1,4 @@
-![MasterHead]([https://canva.link/o5gx7vtunhivlfb](https://www.canva.com/design/DAHJTXUlJeY/LJIXrhbrLJwNErnjH6MP9g/view?utm_content=DAHJTXUlJeY&utm_campaign=designshare&utm_medium=link&utm_source=viewer))
+![MasterHead](https://i.imgur.com/jyASyCX.png)
 
 <h1 align="center">Merhaba 👋, Ben Arda - Zenta</h1>
 
